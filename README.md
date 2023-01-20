@@ -1,2 +1,2 @@
 # useful-resources
- collection of usefule links and websites
+ collection of useful links and websites
